@@ -1,4 +1,4 @@
-# 
+# rare binance futures bot Plugin | liquidity-provision + high-frequency offers the most advanced binance futures bot, with liquidity-provision and high-frequency. Ideal for
 
 
 
